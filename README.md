@@ -1,4 +1,4 @@
 # Hello World
-my world my reality...IzReality
+My world my reality...IzReality
 working to develop coding skills and animation skills.
 
